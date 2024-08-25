@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://its-me-ravi.github.io/Portfolio/](https://its-me-ravi.github.io/Portfolio/)
 
-- 💬 Ask me about **How to hack the Google😂**
+- 💬 Ask me about **How to hack Google😂**
 
 - 📫 How to reach me **rp808462@gmail.com**
 
